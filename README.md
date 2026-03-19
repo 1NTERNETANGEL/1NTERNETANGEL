@@ -7,5 +7,7 @@ C + H freely, always. W2I : i'm 99% Offtab. 𓎢𓎠𓎟𓎠𓎡   ᥬᩤ
 
 𓎟𓎟      Medkit & KAngel kin IRL     ⌣    NSO & P! fans INT.       𓈒  🎀
 
-I love my girlfriend so much.       ཻུ۪♡         ˙    Please don't sexsually interract w/me.
+X , S , R , M , S      ཻུ۪♡         ˙    Please don't sexsually interract w/me.
+
+
 
