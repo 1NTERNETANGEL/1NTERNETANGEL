@@ -2,7 +2,7 @@ wip.
 
 16 , 27 april. Medkit kin IRL.
 
-Taken aback from my beautiful wife Senior. I love her so much. <3
+Taken aback from my beautiful lover Senior. I love them so much. <3
 
 rmking my whole shit on pony town so, yeah. Give me cool ideas. 
 
