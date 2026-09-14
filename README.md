@@ -8,4 +8,6 @@ rmking my whole shit on pony town so, yeah. Give me cool ideas.
 
 always feel free to cxh me, i love it.
 
+Offtab 99% of the time, little to no replies. 
+
 https://v1rtualdivinity.straw.page
