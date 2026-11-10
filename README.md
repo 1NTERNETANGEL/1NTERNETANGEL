@@ -13,6 +13,8 @@ $\color{#6B5269}{\text{Elysia / Ely ᭪༊ }}$ ,
 
   $\color{#514D6F}{\text{ Taken aback from my beautiful wife Senior <3  }}$
 
+  this is wip.
+
 <img width="1869" height="1178" alt="image" src="https://github.com/user-attachments/assets/bb612050-d69d-4cb0-b881-1a5826347afe" />
 
 
