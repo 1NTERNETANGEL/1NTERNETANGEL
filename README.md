@@ -1,13 +1,1 @@
-wip.
-
-16 , 27 april. Medkit kin IRL.
-
-Taken aback from my beautiful lover Senior. I love them so much. <3
-
-rmking my whole shit on pony town so, yeah. Give me cool ideas. 
-
-always feel free to cxh me, i love it.
-
-Offtab 99% of the time, little to no replies. 
-
-https://v1rtualdivinity.straw.page
+$\color{#16a34a}{\text{This is currently a test }}$
